@@ -1,5 +1,2 @@
--> the H in slavik-os stand for happiness .
-
--> i only respect Marco Pierre & George Hotz .
-
-->> dunno why am on github i suck at codding . <<-
+> The H in slavik-os stand for happiness .
+> He choosed to , he made himself to  ~marco piere
